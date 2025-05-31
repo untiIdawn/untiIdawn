@@ -6,7 +6,7 @@
  
  that one bitch that dont play bout zerith or aeon 
 
-![](https://64.media.tumblr.com/b050f3a2d91a1ade5c010ab3b3997af2/3f93215a24f21414-32/s1280x1920/e97ce1e56baa0eb488e59b62bbd480f7fb36ead2.pnj)
+![](https://i.pinimg.com/736x/26/47/10/26471013d6802f13fb45964ae957b724.jpg)
 
 ‎![counter](https://komarev.com/ghpvc/?username=untildawns&label=ੈ✩‧₊˚&color=e398af&style=plastic") 
 ‎ 
