@@ -6,6 +6,8 @@
  
  that one bitch that dont play bout zerith or aeon 
 
+ pathetically in need of friends. c + h please.
+
 ![](https://64.media.tumblr.com/18c7a1721aa26f780efb7c8b345299f2/72d3d156ab068613-b2/s1280x1920/5d40275395d2d0b44f5e0ed0088c366d6127d1ee.pnj)
 
 ‎![counter](https://komarev.com/ghpvc/?username=untildawns&label=ੈ✩‧₊˚&color=c7f7a3&style=plastic") 
