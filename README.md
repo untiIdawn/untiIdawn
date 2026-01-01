@@ -7,6 +7,8 @@
 
  [rentry](https://rentry.co/faye) ‎ ‎‎‎  ‎ ‎ ‎  ‎ [ata](https://glee.atabook.org/)
 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hgkzgh0ufui33p9xwh91jrf7x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=143582&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)‎‎ ‎
+
 
 ‎ 
  ‎
